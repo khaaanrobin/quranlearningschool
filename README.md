@@ -1,1 +1,1 @@
-# quranlearningschool
+# quranschool.com
